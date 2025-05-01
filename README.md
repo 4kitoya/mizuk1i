@@ -7,7 +7,7 @@
 ![IMG_1904](https://github.com/user-attachments/assets/1477522d-7904-4caf-84b0-9a20056cecbd)
 
 
-<ins>H**E**Y **CU**T**I**E !</ins> please *sign* my <ins>**atabook**</ins> >< ![image](https://github.com/user-attachments/assets/41d2eccb-2907-460f-a7fc-18e1cb18d018) 
+<ins>H**E**Y **CU**T**I**E ! >< ![image](https://github.com/user-attachments/assets/41d2eccb-2907-460f-a7fc-18e1cb18d018) 
 
 feel <ins>free</ins> to *cuddles or hide*
 
